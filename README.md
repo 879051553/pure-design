@@ -52,6 +52,8 @@ https://live.bilibili.com/21889562
 
 关于本项目的任何问题都可以在我的知识星球进行提问，你会得到1对1的解答服务 → [戳我加入](https://t.zsxq.com/08x4zzHWo)
 
+##项目资料汇总：https://docs.qq.com/doc/DUWp6TVJxZFpTVWdE
+
 
 
 
